@@ -4,7 +4,6 @@
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FuseIsHere813&show_icons=true&theme=radical)
 
-![Ganryu BAD!](trash.png)
 
 - I’m currently working on Strident-Crisis-HTML5
 - I’m looking to collaborate on Vs. OMEGA
