@@ -13,4 +13,4 @@
 - Ask me about FNF.
 - How to reach me: Discord: Ominousnebula#2707
 - Pronouns: he/him and they/them
-- Fun fact: im only godd with circles in Friday Night Funkin'
+- Fun fact: im only good with circles in Friday Night Funkin'
