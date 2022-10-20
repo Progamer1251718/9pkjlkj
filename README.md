@@ -2,7 +2,7 @@
 
 ## I am a God at Funky Friday
 
-![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=FuseIsHere813&show_icons=true&theme=radical)
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=OminousNebula813&show_icons=true&theme=radical)
 
 
 - I’m currently working on Strident-Crisis-HTML5
