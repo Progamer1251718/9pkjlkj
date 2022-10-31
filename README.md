@@ -14,3 +14,4 @@
 - How to reach me: Discord: Ominousnebula#2707
 - Pronouns: he/him and they/them
 - Fun fact: im only good with circles in Friday Night Funkin'
+- I might start a DJ studio and remake sone really good songs or maybe make my own.
